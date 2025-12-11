@@ -1,2 +1,3 @@
 # Masonic-Journeys
-Books for Personal Masonic Journey
+
+These are some of the books I have personnaly consulted during my personal journey into Masonic Ritual and Education.  To the best of my knowlege all are at least 100 years old with some being from as early as the 1720 and 30's. Please use them as you wish as they have been put on the WEB for others to enjoy and learn from.  Many of them were gleaned from other sites withing Masonic Lodges and Grand Lodges and were given to me freely and so I pass them to you freely.  There are other books I have used as well but they are still within copy right or are newer than 100 years old so I have not included  them in this list to keep from violating copyright law. Should you find a book that is still under copyright please advise me and it will be removed as promptly as possible. 
